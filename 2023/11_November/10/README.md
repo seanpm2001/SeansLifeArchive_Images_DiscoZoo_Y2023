@@ -1,7 +1,7 @@
 
 ***
 
-# 2023, Thursday, November 9th - Didn't play
+# 2023, Friday, November 10th - Didn't play
 
 I did not play Disco Zoo today. Today was not a scheduled day to play.
 
